@@ -1,1 +1,0 @@
-# jweinstein.github.io
